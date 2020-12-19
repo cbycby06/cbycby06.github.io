@@ -1,8 +1,7 @@
-# cbycby06.github.io
 # Hello-world
 
 The originality that brought about mankind begets incessant joy and pain.
 
-# Should I give it a try?
+# Trying new things
 
-Getting to know each other is effort-consuming.
+The first time you feel like you are getting your feet wet may be the feeling you need
